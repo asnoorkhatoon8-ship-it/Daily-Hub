@@ -1,1 +1,1 @@
-# Daily-Hub
+# DailyHub.com
